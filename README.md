@@ -1,1 +1,1 @@
-# HTML-PRACTICE-2
+# E-HA Academy
